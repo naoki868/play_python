@@ -1,0 +1,1 @@
+/Users/naoki/Downloads/IMG_6568_Original.jpg
